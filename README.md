@@ -5,3 +5,5 @@ I'm a first year Game Dev Student at NSCC!!
 ----------------------------------------------------------------------------------
 I've lived in Nova Scotia my entire life, but I'm ready to move on and get to work
 ----------------------------------------------------------------------------------
+denisonipercey@outlook.com
+----------------------------------------------------------------------------------
